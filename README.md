@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning: How to make MS piant in assembly
 - 💞️ I’m looking to collaborate: on You and me baby💞️
 - 📫 How to reach me: wechat me on Xx_Zaddy_xX
-- 😄 Pronouns: Ga/mer
+- 😄 Pronouns: Gay/mer
 - ⚡ Fun fact: Im the zodiac killer
 
 <!---
